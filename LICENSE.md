@@ -1,4 +1,4 @@
-#  
+#  Experience bridger western like never before with secure Script for bridger western, the #1 Script. Includes invisibility and undetectable for
 
 
 
